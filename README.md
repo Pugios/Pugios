@@ -2,7 +2,7 @@ Salam!
 
 I'm [@Pugios](https://github.com/Pugios), Pugio and Mohamed 😄
 
-Finshed my Masters in Computer Science at TU Berlin in Nov 2024!
+Finshed my Masters in Computer Science at TU Berlin in Feb 2025!
 
 ---
 
